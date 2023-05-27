@@ -5,7 +5,7 @@ Autobiography
 
 Bachelor of Science in Electrical Engineering
 University of the Philippines – Diliman Campus 
-Address: A-32 Tialo Minuyan Proper, CSJDM, Bulacan                      ![image](https://github.com/Estrada03/Estrada/assets/134744904/fadab9ad-f898-4236-a1b6-812f18959999)
+Address: A-32 Tialo Minuyan Proper, CSJDM, Bulacan                   ![image](https://github.com/Estrada03/Estrada/assets/134744904/594f9b6d-6acb-4f7a-8b5a-7aa6b2519b86)
 Contact number: 09297744437
 Email Address: *Jemuelestrada.jre@gmail.com*
 
