@@ -1,11 +1,11 @@
 # Estrada
 Autobiography
 
-##JEMUEL R. ESTRADA
+##JEMUEL R. ESTRADA                                                                                                                                   ![image](https://github.com/Estrada03/Estrada/assets/134744904/594f9b6d-6acb-4f7a-8b5a-7aa6b2519b86)
 
 Bachelor of Science in Electrical Engineering
 University of the Philippines – Diliman Campus 
-Address: A-32 Tialo Minuyan Proper, CSJDM, Bulacan                   >![image](https://github.com/Estrada03/Estrada/assets/134744904/594f9b6d-6acb-4f7a-8b5a-7aa6b2519b86)
+Address: A-32 Tialo Minuyan Proper, CSJDM, Bulacan                   
 Contact number: 09297744437
 Email Address: *Jemuelestrada.jre@gmail.com*
 
