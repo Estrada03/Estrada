@@ -14,26 +14,35 @@ Email Address: *Jemuelestrada.jre@gmail.com*
 **• UNIVERSITY OF THE PHILIPPINES**
 
 (Diliman Campus)
+
 Bachelor of Science in Electrical Engineering 
+
 (S.Y. 2026-2027)
 
 **• STI College**
 
 (San Jose del Monte Campus)
+
 Science, Technology, Engineering, and Mathematics
+
 With Honors
+
 (S.Y.2020-2021)
 
 **• LIVING IMAGE ACADEMY OF SJDM**
 
 (Minuyan Proper, CSJDM, Bulacan)
+
 With High Honors
+
 (S.Y.2018-2019)
 
 **• LIVING IMAGE ACADEMY OF SJDM**
 
 (Minuyan Proper, CSJDM, Bulacan)
+
 1st Honorable Mention
+
 (S.Y.2014-2015)
 
 >**SEMINAR/S AND TRAINING\S ATTENDED**
@@ -57,10 +66,10 @@ November 2025
 Date of Birth:		March 26, 2002
 Place of Birth:		SJDM, Bulacan
 Nationality:		Filipino
-Religion:		Roman Catholic
+Religion:		          Roman Catholic
 Civil Status:		Single
 Height:			5’3
-Weight:		69 kg
+Weight:		          69 kg
 
 
 
