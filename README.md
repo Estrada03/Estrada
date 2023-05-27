@@ -3,13 +3,9 @@ Autobiography
 #JEMUEL R. ESTRADA
 
 Bachelor of Science in Electrical Engineering
-
 University of the Philippines – Diliman Campus 
-
 Address: A-32 Tialo Minuyan Proper, CSJDM, Bulacan
-
 Contact number: 09297744437
-
 Email Address: *Jemuelestrada.jre@gmail.com*
 
 >**OBJECTIVES**
@@ -18,34 +14,26 @@ Email Address: *Jemuelestrada.jre@gmail.com*
 **• UNIVERSITY OF THE PHILIPPINES**
 
 (Diliman Campus)
-
 Bachelor of Science in Electrical Engineering 
-
 (S.Y. 2026-2027)
 
 **• STI College**
 
 (San Jose del Monte Campus)
-
 Science, Technology, Engineering, and Mathematics
 With Honors
-
 (S.Y.2020-2021)
 
 **• LIVING IMAGE ACADEMY OF SJDM**
 
 (Minuyan Proper, CSJDM, Bulacan)
-
 With High Honors
-
 (S.Y.2018-2019)
 
 **• LIVING IMAGE ACADEMY OF SJDM**
 
 (Minuyan Proper, CSJDM, Bulacan)
-
 1st Honorable Mention
-
 (S.Y.2014-2015)
 
 >**SEMINAR/S AND TRAINING\S ATTENDED**
