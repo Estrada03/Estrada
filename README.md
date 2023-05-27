@@ -57,18 +57,26 @@ November 2025
 
 >**KNOWLEDGE, SKILLS AND ATTITUDE**
 
-•	Knowledgeable in of tools, both hand and electric is essential. Good understanding of trigonometry and geometry and being at the top of the field.
-•	Organized, accurate, and detailed-oriented.
+•         Knowledgeable in of tools, both hand and electric is essential. Good understanding of trigonometry and geometry and being at the top of the field.•	Organized, • 
+
+•         accurate, and detailed-oriented.
+
 •	Knowledgeable in designing, making, estimating and interpreting plans in project.
 
 >**PERSONAL INFORMATION**
 
 Date of Birth:		March 26, 2002
+
 Place of Birth:		SJDM, Bulacan
+
 Nationality:		Filipino
+
 Religion:		          Roman Catholic
+
 Civil Status:		Single
+
 Height:			5’3
+
 Weight:		          69 kg
 
 
