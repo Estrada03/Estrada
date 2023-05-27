@@ -60,9 +60,9 @@ November 2025
 
 >**KNOWLEDGE, SKILLS AND ATTITUDE**
 
-•         Knowledgeable in of tools, both hand and electric is essential. Good understanding of trigonometry and geometry and being at the top of the field.•	Organized, • 
+•         Knowledgeable in of tools, both hand and electric is essential. Good understanding of trigonometry and geometry and being at the top of the field.
 
-•         accurate, and detailed-oriented.
+•	Organized, accurate, and detailed-oriented.
 
 •	Knowledgeable in designing, making, estimating and interpreting plans in project.
 
