@@ -1,5 +1,5 @@
 # Estrada
-Autobiography
+Resume
 
 ##JEMUEL R. ESTRADA                                                                                                                                   ![image](https://github.com/Estrada03/Estrada/assets/134744904/594f9b6d-6acb-4f7a-8b5a-7aa6b2519b86)
 
